@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...need cuijingfei
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...cucu
+- ⚡ Fun fact: ...cucunizaishenbian
 i miss you, feifeithe best for you ff
 <!---cool guyyou and fsifengzhengbanizhuiamily,you are my family
 0xdiegoperrotti/0xdiegoperrotti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
