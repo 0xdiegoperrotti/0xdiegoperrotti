@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...cuijingfei
 - 💞️ I’m looking to collaborate on ...xiangniyiqixiangshoumeihao
 - 📫 How to reach me ...need cuijingfei
-- 😄 Pronouns: ...xiangnimeiyitiannishisuoyouyoushanyouyuyhouni
+- 😄 Pronouns: ...xiangnimeiyitiannishisuoyouyoushanyouywodeshijieweinibaoliuuyhouni
 - ⚡ Fun fact: ...cucunizaishenbian
 i miss you, feifeithe best for you ff
 <!---cool guyyou and fsifengzhengbanizhuiamily,you are my family
